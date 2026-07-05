@@ -1,4 +1,4 @@
-# ChatGPT Plus / Pro 开通指南（2026 最新版）
+# ChatGPT会员开通指南（2026）：Plus / Pro 官方订阅、充值与升级教程
 
 > 面向国内用户的 ChatGPT Plus / Pro 订阅与升级指南，覆盖 OpenAI 官方订阅、Apple App Store 内购、Google Play 内购、海外虚拟信用卡、第三方代充等常见方案。
 
